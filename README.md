@@ -74,7 +74,7 @@ Kajian dilaksanakan pada tanggal 6 Muharam 1440 H / 16 September 2018.
 
 Kajian dilaksanakan pada tanggal 7 Dzulhijjah 1439 H / 19 Agustus 2018.
 
-- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/amalan_agung_di _10_hari_awal_bulan_dzulhijjah.MP3)
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/amalan_agung_di_10_hari_awal_bulan_dzulhijjah.MP3)
 
 #### Keutamaan Berdzikir
 
