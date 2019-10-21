@@ -4,6 +4,12 @@ Dokumentasi kajian Ustadz Ahmad Sabiq di Masjid Namira Lamongan.
 
 ## Daftar Isi
 
+#### Penggagas Kebaikan & Keburukan Dalam Islam
+
+Kajian dilaksanakan pada tanggal 21 Safar 1441 H / 20 Oktober 2019.
+
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/penggagas_kebaikan_&_keburukan_dalam_islam.MP3)
+
 #### Anak Anugerah Dari Allah
 
 Kajian dilaksanakan pada tanggal 15 Muharram 1441H. / 15 September 2019.
