@@ -86,21 +86,19 @@ Kajian dilaksanakan pada tanggal 2 Dhulqaidah 1439 H / 15 Juli 201.
 
 Kajian dilaksanakan pada tanggal 29 Rajab 1439 H / 15 April 2018.
 
-- [Download audio kajian] (https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/perumpamaan_teman_baik_dan_buruk.mp3)
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/perumpamaan_teman_baik_dan_buruk.mp3)
 
 #### 4 Bulan Istimewa Dalam Tahun Hijriah
 
 Kajian dilaksanakan pada tanggal 1 Rajab 1439 H / 18 Maret 2018.
 
-- [Download audio kajian]
-(https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/4_bulan_istimewa_dalam_tahun_hijriah.mp3)
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/4_bulan_istimewa_dalam_tahun_hijriah.mp3)
 
 #### Mempelajari Hadits Rasulullah
 
 Kajian dilaksanakan pada tanggal 2 Jumadil Akhir 1439 H / 18 Februari 2018.
 
-- [Download audio kajian]
-(https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/mempelajari_hadits_rasulullah.mp3)
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/mempelajari_hadits_rasulullah.mp3)
 
 #### Berilah Hadiah
 
