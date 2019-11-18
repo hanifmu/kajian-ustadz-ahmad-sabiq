@@ -4,6 +4,12 @@ Dokumentasi kajian Ustadz Ahmad Sabiq di Masjid Namira Lamongan.
 
 ## Daftar Isi
 
+#### Mukmin_dan Pohon Kurma
+
+Kajian dilaksanakan pada tanggal 20 Rabiul Awal 1441 / 17 November 2019.
+
+- [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/mukmin_dan _pohon_kurma.MP3)
+
 #### Penggagas Kebaikan & Keburukan Dalam Islam
 
 Kajian dilaksanakan pada tanggal 21 Safar 1441 H / 20 Oktober 2019.
