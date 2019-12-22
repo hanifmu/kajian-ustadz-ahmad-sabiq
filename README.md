@@ -4,6 +4,12 @@ Dokumentasi kajian Ustadz Ahmad Sabiq di Masjid Namira Lamongan.
 
 ## Daftar Isi
 
+#### Meningkatkan Keimanan
+
+Kajian dilaksanakan pada tanggal 18 Rabiul Akhir 1441 / 15 Desember 2019.
+
+-[Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/meningkatkan_keimanan.MP3)
+
 #### Mukmin_dan Pohon Kurma
 
 Kajian dilaksanakan pada tanggal 20 Rabiul Awal 1441 / 17 November 2019.
