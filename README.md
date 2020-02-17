@@ -4,6 +4,12 @@ Dokumentasi kajian Ustadz Ahmad Sabiq di Masjid Namira Lamongan.
 
 ## Daftar Isi
 
+#### Muhasabah diri dalam beramal
+
+Kajian dilaksanakan pada tanggal 22 Jumadil Akhir 1441 / 16 Februari 2020.
+
+-[Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/muhasabah_diri_dalam_beramal.MP3)
+
 #### Sebaik-baik lauk adalah cuka
 
 Kajian dilaksanakan pada tanggal 23 Jumadil Awwal 1441 / 19 Januari 2020.
