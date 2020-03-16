@@ -4,6 +4,12 @@ Dokumentasi kajian Ustadz Ahmad Sabiq di Masjid Namira Lamongan.
 
 ## Daftar Isi
 
+#### Berpasrah Kepada Allah
+
+Kajian dilaksanakan pada tanggal  20 Rajab 1441 / 15 Maret 2020.
+
+-[Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/berpasrah_kepada_allah.MP3)
+
 #### Muhasabah diri dalam beramal
 
 Kajian dilaksanakan pada tanggal 22 Jumadil Akhir 1441 / 16 Februari 2020.
