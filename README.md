@@ -24,25 +24,25 @@ Kajian dilaksanakan pada tanggal 23 Jumadil Awwal 1441 / 19 Januari 2020.
 
 ### Meningkatkan Keimanan
 
-Kajian dilaksanakan pada tanggal 18 Rabiul Akhir 1441 / 15 Desember 2019.
+Kajian dilaksanakan pada tanggal 18 Rabi'ul Akhir 1441 / 15 Desember 2019.
 
 - [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/meningkatkan_keimanan.MP3)
 
 ### Mukmin dan Pohon Kurma
 
-Kajian dilaksanakan pada tanggal 20 Rabiul Awal 1441 / 17 November 2019.
+Kajian dilaksanakan pada tanggal 20 Rabi'ul Awwal 1441 / 17 November 2019.
 
 - [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/mukmin_dan_pohon_kurma.MP3)
 
 ### Penggagas Kebaikan dan Keburukan dalam Islam
 
-Kajian dilaksanakan pada tanggal 21 Safar 1441 / 20 Oktober 2019.
+Kajian dilaksanakan pada tanggal 21 Shafar 1441 / 20 Oktober 2019.
 
 - [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/penggagas_kebaikan_&_keburukan_dalam_islam.MP3)
 
 ### Anak Anugerah dari Allah
 
-Kajian dilaksanakan pada tanggal 15 Muharram 1441 / 15 September 2019.
+Kajian dilaksanakan pada tanggal 15 Muharrom 1441 / 15 September 2019.
 
 - [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/anak_anugerah_dari_allah.MP3)
 
@@ -54,7 +54,7 @@ Kajian dilaksanakan pada tanggal 17 Dzulhijjah 1440 / 18 Agustus 2019.
 
 ### Istiqomah dalam Keimanan
 
-Kajian dilaksanakan pada tanggal 12 Syawal 1440 / 16 Juni 2019.
+Kajian dilaksanakan pada tanggal 12 Syawwal 1440 / 16 Juni 2019.
 
 - [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/istiqomah_dalam_keimanan.MP3)
 
@@ -78,31 +78,31 @@ Kajian dilaksanakan pada tanggal 12 Jumadil Akhir 1440 / 17 Februari 2019.
 
 ### Jangan Menipu
 
-Kajian dilaksanakan pada tanggal 21 Jumadil Awal 1440 / 27 Januari 2019.
+Kajian dilaksanakan pada tanggal 21 Jumadil Awwal 1440 / 27 Januari 2019.
 
 - [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/jangan_menipu.MP3)
 
 ### Engkau Bersama dengan Orang yang Engkau Cintai
 
-Kajian dilaksanakan pada tanggal 8 Rabiul Akhir 1440 / 16 Desember 2018.
+Kajian dilaksanakan pada tanggal 8 Rabi'ul Akhir 1440 / 16 Desember 2018.
 
 - [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/engkau_bersama_dengan_orang_yang_engkau_cintai.MP3)
 
 ### Islam adalah Agama Yang Mudah
 
-Kajian dilaksanakan pada tanggal 10 Rabiul Awal 1440 H / 18 November 2018.
+Kajian dilaksanakan pada tanggal 10 Rabiul Awwal 1440 H / 18 November 2018.
 
 - [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/islam_adalah_agama_yang_mudah.MP3)
 
 ### Harta Halal dan Perilaku Baik
 
-Kajian dilaksanakan pada tanggal 12 Safar 1440 / 21 Oktober 2018.
+Kajian dilaksanakan pada tanggal 12 Shafar 1440 / 21 Oktober 2018.
 
 - [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/harta_halal_&_perilaku_baik.MP3)
 
 ### Hijrah
 
-Kajian dilaksanakan pada tanggal 6 Muharam 1440 / 16 September 2018.
+Kajian dilaksanakan pada tanggal 6 Muharrom 1440 / 16 September 2018.
 
 - [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/hijrah.MP3)
 
@@ -114,7 +114,7 @@ Kajian dilaksanakan pada tanggal 7 Dzulhijjah 1439 / 19 Agustus 2018.
 
 ### Keutamaan Berdzikir
 
-Kajian dilaksanakan pada tanggal 2 Dhulqaidah 1439 / 15 Juli 201.
+Kajian dilaksanakan pada tanggal 2 Dzulqo'dah 1439 / 15 Juli 2018.
 
 - [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/keutamaan_berdzikir.MP3)
 
@@ -138,13 +138,13 @@ Kajian dilaksanakan pada tanggal 2 Jumadil Akhir 1439 / 18 Februari 2018.
 
 ### Berilah Hadiah
 
-Kajian dilaksanakan pada tanggal 4 Jumadil Awal 1439 / 21 Januari 2018.
+Kajian dilaksanakan pada tanggal 4 Jumadil Awwal 1439 / 21 Januari 2018.
 
 - [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/berilah_hadiah.mp3)
 
 ### Berkatalah yang Baik
 
-Kajian dilaksanakan pada tanggal 25 Muharam 1439 / 15 Oktober 2017.
+Kajian dilaksanakan pada tanggal 25 Muharrom 1439 / 15 Oktober 2017.
 
 - [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/berkatalah_yang_baik.mp3)
 
@@ -156,7 +156,7 @@ Kajian dilaksanakan pada tanggal 26 Dzulhijjah 1438 / 17 September 2017.
 
 ### Sholat Isyroq
 
-Kajian dilaksanakan pada tanggal 22 Syawal 1438 / 16 Juli 2017.
+Kajian dilaksanakan pada tanggal 22 Syawwal 1438 / 16 Juli 2017.
 
 - [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/sholat_isyroq.MP3)
 
@@ -175,13 +175,13 @@ Kajian dilaksanakan pada tanggal 27 Rajab 1438 / 23 April 2017.
 
 ### Niat
 
-Kajian dilaksanakan pada tanggal 21 Jumadil Tsani 1438 / 19 Maret 2017.
+Kajian dilaksanakan pada tanggal 21 Jumadil Akhir 1438 / 19 Maret 2017.
 
 - [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/niat.MP3)
 
 ### Keutamaan Rasulullah
 
-Kajian dilaksanakan pada tanggal 8 Jumadil Ula 1438 / 5 Februari 2017.
+Kajian dilaksanakan pada tanggal 8 Jumadil Awwal 1438 / 5 Februari 2017.
 
 - [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/keutamaan_rasulullah.MP3)
 
@@ -190,3 +190,5 @@ Kajian dilaksanakan pada tanggal 8 Jumadil Ula 1438 / 5 Februari 2017.
 Kajian dilaksanakan pada tanggal 25 Rabi'ul Awwal 1438 / 25 Desember 2016.
 
 - [Download audio kajian](https://github.com/hanifmu/kajian-ustadz-ahmad-sabiq/raw/master/doa_yang_paling_agung.mp3)
+
+{{< rekaman-namira >}}
